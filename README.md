@@ -6,7 +6,6 @@
   ────\
   | Non-catering • Non-toxic • 13+ • Discord required!\
   | Want to join the waitlist? Use the discord invite in our links!\
-  | Whisper Hale if you're interested in allying once we open :-)\
   ────\
   <img height="90px" src="https://file.garden/adlwoUt2CUP8PpeM/GithubAm.rs.png">
   
