@@ -5,7 +5,7 @@
   <sup>A steam train themed Ponytown Regiment!</sup>\
   ────\
   | Non-catering • Non-toxic • 13+ • Discord required!\
-  | Want to join the waitlist? Use the discord invite in our links!\
+  | {Am.rs} will open on the 31st of October, you may join the waitlist in the meantime!\
   ────\
   <img height="90px" src="https://file.garden/adlwoUt2CUP8PpeM/GithubAm.rs.png">
   
