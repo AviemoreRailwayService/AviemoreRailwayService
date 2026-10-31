@@ -5,7 +5,7 @@
   <sup>A steam train themed Ponytown Regiment!</sup>\
   ────\
   | Non-catering • Non-toxic • 13+ • Discord required!\
-  | Want to Join? Whisper Hale or one of our recruits!
+  | Want to Join? Whisper Hale or one of our recruits!\
   ────\
   <img height="90px" src="https://file.garden/adlwoUt2CUP8PpeM/GithubAm.rs.png">
   
